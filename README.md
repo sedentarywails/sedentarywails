@@ -1,16 +1,23 @@
-## Hi there 👋
+# <p align="center"> (╬▔皿▔)╯ 
+ <p align="center"> <img width="219" height="64" alt="image" src="https://github.com/user-attachments/assets/3f6359c2-3339-4c45-b617-ea1329f0c13c" /><img width="219" height="64" alt="image" src="https://github.com/user-attachments/assets/1a5e0abd-8675-4c24-b907-69d5d0c28c32" /><img width="219" height="64" alt="image" src="https://github.com/user-attachments/assets/2a16e688-8607-47b6-bc4f-55c8fd980cc4" /><img width="219" height="64" alt="image" src="https://github.com/user-attachments/assets/adf73299-003c-449d-b337-de1de0732147" />
 
-<!--
-**sedentarywails/sedentarywails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ <p align="center">"𝚆𝚎 𝚊𝚌𝚌𝚎𝚙𝚝 𝚝𝚑𝚎 𝚕𝚘𝚟𝚎 𝚠𝚎 𝚝𝚑𝚒𝚗𝚔 𝚠𝚎 𝚍𝚎𝚜𝚎𝚛𝚟𝚎."
+ <p align="center"><img width="735" height="524" alt="image" src="https://github.com/user-attachments/assets/dc9de58d-23a6-457c-97f4-39f08a02efc4" />
+<img width="1200" height="672" alt="image" src="https://github.com/user-attachments/assets/d715eed6-a1c9-488a-9369-d800142a1742" />
+
+<p align="center"> my name is Mac and I am fond of music and shows and movies
+
+  
+  ✠———✠———✠ ✠———✠———✠✠———✠———✠ ✠———✠———✠✠———✠———✠ ✠———✠———✠
+
+- I'm a wallflower so this is my way of telling stuff about myself instead of saying it in person
+  
+- I may come off as rude or insensitive, but I am just an 
+
+<img width="736" height="419" alt="image" src="https://github.com/user-attachments/assets/9830fab8-7d85-4a47-8b9a-e8b114da2018" />
+
+
+  
