@@ -11,7 +11,7 @@
 <img width="768" height="732" alt="image" src="https://github.com/user-attachments/assets/ae4b8073-8cb7-43d4-a85f-a675aacb0b7e" />
 
 
-# <p align="center"> 𝙸 𝚐𝚘 𝚋𝚢 𝙼𝚊𝚌, 𝚊𝚗𝚍 𝙸 𝚊𝚖 𝚏𝚘𝚗𝚍 𝚘𝚏 𝚖𝚞𝚜𝚒𝚌 𝚊𝚗𝚍 𝚜𝚑𝚘𝚠𝚜 𝚊𝚗𝚍 𝚖𝚘𝚟𝚒𝚎𝚜.
+ <p align="center"> 𝙸 𝚐𝚘 𝚋𝚢 𝙼𝚊𝚌, 𝚊𝚗𝚍 𝙸 𝚊𝚖 𝚏𝚘𝚗𝚍 𝚘𝚏 𝚖𝚞𝚜𝚒𝚌 𝚊𝚗𝚍 𝚜𝚑𝚘𝚠𝚜 𝚊𝚗𝚍 𝚖𝚘𝚟𝚒𝚎𝚜.
 
   
 <p align="center">════════════════════════════════════════════════════════════☕︎
